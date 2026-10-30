@@ -8,7 +8,7 @@ https://skill-sphere-eco.lovable.app
 
 ## Purpose
 
-Our mission is to empower students to transform their skills into practical experience, new opportunities, and career growth.
+⭐Our mission is to empower students to transform their skills into practical experience, new opportunities, and career growth.
 
 ## Key Features
 
